@@ -1,0 +1,2 @@
+# TradingConceptETHLI
+Allow my opinion
